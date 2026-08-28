@@ -1,3 +1,1 @@
-- [How to chemically strengthen glass (eg Gorilla Glass)](
-(
-by: @AppliedScience
+- [How to chemically strengthen glass (eg Gorilla Glass)](https://youtu.be/y02AXdec1sE) by: @AppliedScience
