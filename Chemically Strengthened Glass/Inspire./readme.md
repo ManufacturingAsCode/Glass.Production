@@ -1,4 +1,2 @@
 - [How to chemically strengthen glass (eg Gorilla Glass)](https://youtu.be/y02AXdec1sE) by: @AppliedScience
-- [The Most Important Material Ever Made](
-
-by: @veritasium
+- [The Most Important Material Ever Made](https://youtu.be/2oDXbFcHliM) by: @veritasium
