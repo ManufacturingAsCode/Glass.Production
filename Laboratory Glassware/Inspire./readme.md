@@ -4,6 +4,7 @@
 - [Scientific Glass Blowing EP:0 Intro and some basics](https://youtu.be/pqVycDX2tyM)
 by: Wheeler Scientific
 - [Process of making various glass laboratory equipment. Korean glass blowing master](https://youtu.be/d099wtEqkyo)
-- [Why modern chemistry still needs glassblowers](
+- [Why modern chemistry still needs glassblowers](https://youtu.be/rWp_vxa0evM)
 
 # Relation:
+- 
